@@ -1,1 +1,0 @@
-# grondwet-artikel-1
